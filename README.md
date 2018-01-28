@@ -1,2 +1,6 @@
 # GitHub
 Why I'm on GitHub )
+I am a freelance model and actor living in Bangkok, TH. I started GitHub so that I could help to advertise my experience through my webpage. The webpage is used to help my casting forms appear to be more professional. By appearing more professional, it helps me to compete against very strong talents in the film and entertainment industry. By competing at a higher level, the budgets of the jobs increase (not as dramatically as most would think). So I need GitHub to help me learn coding, to then speed up my webpage loading time to under the average 2 seconds that most users would expect it to load in (I'm at 18 seconds loading time now and a 5MB homepage), so that it's something I'm then able to write on the 25% or less of major casting forms that even ask for a website. It sounds like I'm joking, which it has sarcastic undertones, but the entertainment industry can literally be either this (simple) or (ridiculous) based on how people choose to approach it. 
+So by learning coding and how to build webpages; I'm going to set up avenues of revenue, and more ways to increase my casting success rates and increase the amount of jobs that I'm doing. So that I can hopefully one day, afford to pay my rent on time. 
+If anyone read this; wish me success and visit my website at www.ModelingMuse.com 
+- Claude Turner
